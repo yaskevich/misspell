@@ -20,4 +20,4 @@
 Варвара Магомедова  
   
 ### Смена тимлидов
-https://docs.google.com/spreadsheets/d/1KGbFamxpl7XpE_b5vEwKfIE0YHebDVgXT35Zkh42lHk/edit?usp=sharing
+https://is.gd/YkPqMH
