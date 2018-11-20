@@ -20,4 +20,4 @@
 Варвара Магомедова  
   
 ### Смена тимлидов
-https://is.gd/YkPqMH
+https://clck.ru/EkWNA
